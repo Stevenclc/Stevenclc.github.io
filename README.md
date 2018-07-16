@@ -1,6 +1,5 @@
 ﻿# 7.16
 [7.16.pdf](http://7xrilq.com1.z0.glb.clouddn.com/716.pdf)
-其实我还是喜欢你，放下没那么容易
 # 7.15
 [7.15.pdf](http://7xrilq.com1.z0.glb.clouddn.com/715.pdf)
 # 7.14
